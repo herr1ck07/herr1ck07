@@ -1,5 +1,8 @@
 #sobremim**erick**
+## *straiwegvanhuy_THE HEDGEHOG*
+### CAST NO SHADOW 
 - 👋  **olá eu sou @herr1ck07**
+- :+1: o  meu [e-mail](erick.ramo07@escola.pr.gov.br)
 - 👀 eu estou interessadoem aprender novas linguagens e progamação 
 - 🌱 eu estou recentemente aprendendo a programar na linguagem java script e scratch
 - 💞️ I’m looking to collaborate on ...
